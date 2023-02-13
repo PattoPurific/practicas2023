@@ -8,5 +8,4 @@ INSTITUTO TECNOLOGICO SUPERIOR DE LA SIERRA NEGRA DE AJALPAN
 -Sofia
 -Octavio
 -Ricardo
--ericl
--saul
+kmkkmk
